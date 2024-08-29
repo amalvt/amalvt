@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vtamal999@gmail.com**
 
-- **I Love Football**
+-⚡ **I like Football**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

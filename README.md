@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 <h1 align="center">Hi 👋, I'm Amal VT</h1>
 <h3 align="center">A passionate Data Analyst based in Toronto, Canada</h3>
